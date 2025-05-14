@@ -7,6 +7,8 @@ https://www.dropbox.com/scl/fi/gwmsy4nxosnn1jtnixlt5/0Toxic_Street_v1_1.zip?rlke
 لاند من 1997-2007
 https://www.dropbox.com/scl/fi/81392i9d5xlmdoz0l5qua/kn0z_Land_100.V2_Hotfix.zip?rlkey=cbq4ojfypv6fzgjh5wvww3vyo&st=o4zrfmzc&dl=1
 
+https://www.mediafire.com/file/g12extwo2ernxv0/cruiserj100.rar/file%D9%88%D8%B0%D8%A7
+
 جيب نسخه ابوهادي https://www.mediafire.com/file/so4lrvj3dxospci/cruiserj100.zip/file
 
 بوالين https://www.dropbox.com/scl/fi/gfm4s2kpk88xjuoermfv4/land.crii1.zip?rlkey=cp4y5w6y9invggurejwterv1u&dl=1
